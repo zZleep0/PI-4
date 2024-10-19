@@ -1,0 +1,2 @@
+O conselho acabou de finalizar o anúncio sobre o vulcão, e já voltaram em seus aposentos para discutirem o que fazer
+Você precisa ir falar com Kerak sobre envolver os outros clãs para tomarem uma decisão juntos, entretanto as pessoas ainda estão em estado de choque, talvez seja bom acalmar quem conseguir pelo caminho.
